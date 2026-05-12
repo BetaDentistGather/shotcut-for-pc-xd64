@@ -1,4 +1,4 @@
-# 
+# Shotcut for PC | Shotcut for Windows smart Template: color-correction & LUT-support is the best Shotcut for PC | Shotcut for Windows template, featuring color-correction and
 
 
 
